@@ -26,3 +26,4 @@ Cronograma:
     Apresentação e defesa: 7º mês
 
 Resultados esperados: Espera-se demonstrar que empresas com práticas de gestão de recursos humanos bem definidas e estruturadas apresentam melhor desempenho organizacional, maior engajamento dos colaboradores e menores índices de rotatividade. Além disso, o estudo buscará oferecer diretrizes para a melhoria contínua da gestão de pessoas, promovendo o desenvolvimento sustentável das organizações.
+https://www.linkedin.com/in/leonardo-antunes-451545301/
